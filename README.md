@@ -1,0 +1,3 @@
+- 👋 I'm @mishlyt
+- 🌱 I am currently studying in the 1st year of university, the direction of "business informatics"
+- 📫 inst - mishlyt
